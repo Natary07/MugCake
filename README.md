@@ -1,0 +1,1 @@
+This recipie is for a mug cake. Which is a quick snack that you can make in a mug.
